@@ -1,0 +1,1 @@
+KidStudio — instaladores y actualizaciones (sin codigo).
